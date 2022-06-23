@@ -1,1 +1,2 @@
-# SI_2022_lab2_203034
+Marija Maneva
+203034
